@@ -14,4 +14,4 @@ I would like to gain the skills to specialise in the FinTech sector.
 
 ## Why FinTech as a career path?
 
-For the past year I have become interested in Finances and investment. Also, my current role is closely related to Payments, thus FinTech could help me to get a better role at my current job :) 
+For the past year I have become interested in Finances and investment. Also, my current role is closely related to Payments, thus FinTech could help me get a better role at my current job :) 
